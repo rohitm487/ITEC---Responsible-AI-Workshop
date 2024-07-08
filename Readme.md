@@ -1,4 +1,4 @@
-## ** Workshop Instructor @ At CDAC, ITEC Program Ministry of External Affairs**
+## **Workshop Instructor @ At CDAC, ITEC Program Ministry of External Affairs**
 
 **Conducted a Responsible AI Course for Dominican Republic Government employees, covering:**
 
